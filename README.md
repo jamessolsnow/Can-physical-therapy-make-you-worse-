@@ -14,8 +14,6 @@ Physical therapy can help you:<br />
 <strong>Center for physical therapy in Plano</strong> will evaluate you and analyze your condition before developing a tailored treatment plan unique to your ailment.<br />
 <strong>Current pain and Physical therapy pain</strong><br />
 One of the most prevalent concerns among physical therapy patients is that the treatment may exacerbate their existing discomfort.
-<style type="text/css"><!--td {border: 1px solid #ccc;}br {mso-data-placement:same-cell;}-->
-</style>
 <a href="https://p5perform.com/services/physical-rehab/"><strong>physical therapy center plano tx</strong></a> understand. However, no therapy should ever exceed the line between unpleasant and painful if you communicate with your physical therapist properly.<br />
 Every patient is unique, and everyone has a varied pain threshold, so communication is crucial.<br />
 During your therapy, therapists are trained to pay great attention to you and will do all possible to reduce your discomfort.<br />
