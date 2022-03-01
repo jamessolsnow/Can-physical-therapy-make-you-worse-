@@ -1,5 +1,5 @@
 <p><a href="https://p5perform.com/wp-content/uploads/2021/10/PR-005-1.jpg" target="_self"><img alt="" src="https://p5perform.com/wp-content/uploads/2021/10/PR-005-1.jpg" style="width: 706px; height: 398px;" /></a><br />
-Many of life&#39;s most refined pleasures require dedication, but that doesn&#39;t have to be a problematic or terrible experience. There are several misconceptions about physical therapy, one of which is that it is designed to hurt. On the other hand, <a href="http://physical therapy clinic plano tx">physical therapy clinic plano tx</a> may be a pleasurable experience with the help of our experienced physical therapists.<br />
+Many of life&#39;s most refined pleasures require dedication, but that doesn&#39;t have to be a problematic or terrible experience. There are several misconceptions about physical therapy, one of which is that it is designed to hurt. On the other hand, <a href="https://p5perform.com/services/physical-rehab/">physical therapy clinic plano tx</a> may be a pleasurable experience with the help of our experienced physical therapists.<br />
 <strong>What is Physical Therapy and How Does It Work?</strong><br />
 Physical therapy is a treatment aimed at reducing pain and improving the quality of life.<br />
 Physical therapy can help you:<br />
